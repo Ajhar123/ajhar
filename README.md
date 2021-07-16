@@ -1,0 +1,2 @@
+# ajhar
+Saya pengen nambang 
